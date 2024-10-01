@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @MoHamed-Js-M
-- 👀 I’m interested in learning
+- 👀 I’m interested to learning
 - 🌱 I’m currently learning English & javascript
 - 💞️ I’m looking to collaborate on @@
-- 📫 How to reach me in linkedIN
+- 📫 How to reach me?? in linkedIN
 - 😄 Pronouns: ##
 - ⚡ Fun fact: $$
 
